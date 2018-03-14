@@ -6,7 +6,6 @@
   <img src="main.gif" style="width:100%">
 </figure>
 
-
 ## UPCOMING
 
 3/19 Bookworms with Monique Jenkinson, Brittany Newell, and Jewish Community Center
