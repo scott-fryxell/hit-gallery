@@ -1,8 +1,10 @@
-# World’s End Laundry
+World's End Laundry
 
-*Curated by Peter Gray Hurley*
+Curated by Peter Hurley
 
-*April 12th - May 10th Opening reception April 12th 7-9:30.*
+April 12th - May 12th 2018
+
+Opening reception April 12th 2018 7-9:30
 
 <figure>
   <img src="main.jpg" style="width:100%">

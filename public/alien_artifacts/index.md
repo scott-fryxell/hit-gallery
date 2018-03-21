@@ -1,4 +1,8 @@
-# ALIEN ARTIFACTS
+Alien Artifacts
+
+Alice Shaw,Jack Bool ,Siqi Lin,Graham Holoch, Taylor Johnson, Henry Fey, and Nadair Asghari. Curated by Marissa Leitman.
+
+February 8th - March 15th 2018
 
 *HIT Gallery is pleased to announce our premier opening show 'ALIEN ARTIFACTS' curated by gallery co-owner Marissa Leitman. The show represents a broad range of disciplines but loosely focuses on domestic imagery and the expectations of materials within specific art practices. By subverting the traditional display methods of a work of art or object one is must reevaluate what it does and it’s place in the world.‘Alien Artifacts’ inspects unexamined principles of humanity. The exhibition is on view February 8th, 2018 - March 5th, 2018 by appointment, with an opening reception on Thursday, February 8th between 7 - 9:30pm.*
 
